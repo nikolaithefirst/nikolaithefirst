@@ -1,1 +1,1 @@
-https://t.me/k0d_v_meshke
+https://t.me/kod_v_meshke
